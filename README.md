@@ -1,2 +1,2 @@
 # SocialFishTc
-Diseñado especialmente para ti Karen &lt;3 
+Parche&lt;3 
